@@ -1,4 +1,5 @@
-![문벅스로고_small](https://github.com/Team2-Moonbucks/.github/assets/19326256/48316771-02d7-4e76-bb03-91d178fdf361)
+![문벅스로고_small](https://github.com/Team2-Moonbucks/.github/assets/19326256/ee64fb27-0525-435b-8fdf-e6fdfc0276fd)
+
 
 ## 프로젝트 소개
 
