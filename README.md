@@ -1,3 +1,5 @@
+![문벅스로고_문구추가](https://github.com/Team2-Moonbucks/.github/assets/19326256/db5ebf82-a972-4680-839d-0f07f3606ca6)
+
 ## 프로젝트 소개
 
 ## 팀원 소개
